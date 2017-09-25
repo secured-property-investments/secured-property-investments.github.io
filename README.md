@@ -1,1 +1,1 @@
-# secured-property-investments.github.io
+# Secured Property Investments
